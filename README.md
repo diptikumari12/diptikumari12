@@ -6,7 +6,7 @@
 🌱 Building Real World Projects & Improving My Skills  
 ✨ Interested in Frontend & Backend Development  
 
-📫 Reach me: yourmail@gmail.com  
+📫 Reach me: diptikumari08932@gmail.com  
 
 ---
 
